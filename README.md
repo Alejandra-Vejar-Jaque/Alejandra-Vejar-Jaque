@@ -1,4 +1,5 @@
-![banner git](https://github.com/user-attachments/assets/6878a892-b69a-4bfd-8a07-a010a77abc50)
+
+![banner pepona](https://github.com/user-attachments/assets/9e6586c8-b4fc-4010-85ec-d8546d478fd2)
 
 
 - 👋 Hi, I’m @Alejandra-Vejar-Jaque
